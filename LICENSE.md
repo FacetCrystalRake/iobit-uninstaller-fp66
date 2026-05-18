@@ -1,4 +1,4 @@
-# 
+# smart CCleaner para PC executor é o melhor CCleaner para PC executor com opcoes de filtragem e botoes da barra de titulo. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
